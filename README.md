@@ -1,6 +1,6 @@
 ## 👋 Hey, I'm Santhosh
 
-I'm a **VC & Startup researcher, writer, and content creator** based in India — obsessed with how capital, incentives, and human behavior shape markets and companies.
+I'm a **VC & Startup focused researcher, writer, and content creator** based in India — obsessed with how capital, incentives, and human behavior shape markets and companies.
 
 ## 🧠 What I Think & Write About
 
